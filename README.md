@@ -13,7 +13,7 @@ also:
 
 so he did copy. he is a skid 100% confirmed.
 
-![image](https://github.com/user-attachments/assets/456229fc-21f7-4e5b-a514-e3db815daf45).
+![image](https://github.com/user-attachments/assets/2e9fb6f2-34ea-4c2d-b740-db0a6bc03bec)
 
 Thanks to: Lovely (x_o_._), qeezo (axeqq.), for helping
 
