@@ -22,6 +22,9 @@ Thanks to: Lovely (x_o_._), qeezo (axeqq.), for helping
 # Bonus
 <https://youtu.be/KyJa0wuE-FI?si=WfRTmqBFzg9UQVMt> - by gekke
 
+buying and skidding a joiner
+![image](https://github.com/user-attachments/assets/77e26c0d-3bc3-437d-931e-0e77627a0ca8)
+
 his tool leaks > <https://github.com/vanishgg/exposed/tree/main/leaks>
 
 
