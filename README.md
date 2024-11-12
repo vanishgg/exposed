@@ -22,4 +22,6 @@ Thanks to: Lovely (x_o_._), qeezo (axeqq.), for helping
 # Bonus
 <https://youtu.be/KyJa0wuE-FI?si=WfRTmqBFzg9UQVMt> - by gekke
 
+his tool leaks > <https://github.com/vanishgg/exposed/tree/main/leaks>
+
 
